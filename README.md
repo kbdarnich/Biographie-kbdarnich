@@ -24,5 +24,5 @@ Il a émergé dans le collectif **Bana C5**, avant de s’imposer en solo avec d
 ## Réseaux
 
 - Instagram : [@kbdarnich](https://instagram.com/kbdarnich)  
-- YouTube : à venir  
+- YouTube : @kbdarnich
 - Email : contactkbdarnich@gmail.com
